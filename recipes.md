@@ -80,3 +80,12 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 ![Spaghetti-Paprika im Topf](https://www.wir-essen-gesund.de/wp-content/uploads/2018/06/Spaghetti-Paprikapfanne-3.jpg)
 
 ### Zutaten:
+
+- 250 g Spaghetti
+- 3 Stücke Paprika
+- 1 Stück Zwiebel
+- 3 Zehen Knoblauch
+- 150 ml Sojasahne
+- 4 Esslöffel frische Petersilie
+- 1 Prise Salz
+- 1 Prise Pfeffer
