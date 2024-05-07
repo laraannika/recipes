@@ -75,3 +75,8 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 
 3. Schmelzkäse und Crème fraîche einrühren, aufkochen und mit Salz, Cayennepfeffer und Muskatnuss abschmecken. Nach Wunsch mit ofenfrischem Baguette servieren. ***Guten Appetit!***
 
+## 3.Spaghetti Paprikapfanne
+
+![Spaghetti-Paprika im Topf](https://www.wir-essen-gesund.de/wp-content/uploads/2018/06/Spaghetti-Paprikapfanne-3.jpg)
+
+### Zutaten:
