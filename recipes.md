@@ -66,3 +66,12 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 - 150 g Crème fraîche (30 % Fett)
 - 1 Prise Cayennepfeffer
 - 1 Prise geriebene Muskatnuss
+
+### Zubereitung:
+
+1. Zwiebel und Knoblauch abziehen und fein würfeln. Porree halbieren, waschen, abtropfen lassen, putzen und in Scheiben schneiden.
+
+2. Hackfleisch, Zwiebel- und Knoblauchwürfel in einem großen Topf in Sonnenblumenöl **3-4 Minuten** anbraten. Porree und Salz zugeben, **1-2 Minuten** anschwitzen, mit Gemüsebrühe auffüllen und **ca. 10 Minuten** köcheln lassen.
+
+3. Schmelzkäse und Crème fraîche einrühren, aufkochen und mit Salz, Cayennepfeffer und Muskatnuss abschmecken. Nach Wunsch mit ofenfrischem Baguette servieren. ***Guten Appetit!***
+
