@@ -94,7 +94,7 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 
 1. Zu Beginn vierteln wir die Paprika, entfernen die Kerne und schneiden das weiße Innere heraus.
 
-2. Zum *[Paprika häuten](https://www.wir-essen-gesund.de/paprika-haeuten/)* werden anschließend die Stücke, mit der Schale nach oben, auf einem mit Backpapier ausgelegtem Küchenblech verteilt und für 15 Minuten bei 250 Grad Oberhitze in die oberste Schiene des Backofens geschoben. Die Paprikaviertel bleiben so lange im Backofen, bis die obere Schicht gut „verbrannt“ ist, denn dann lässt sich die Haut sehr einfach abziehen.
+2. Zum *[Paprika häuten](https://www.wir-essen-gesund.de/paprika-haeuten/ "Hier findest du eine Anleitung")* werden anschließend die Stücke, mit der Schale nach oben, auf einem mit Backpapier ausgelegtem Küchenblech verteilt und für 15 Minuten bei 250 Grad Oberhitze in die oberste Schiene des Backofens geschoben. Die Paprikaviertel bleiben so lange im Backofen, bis die obere Schicht gut „verbrannt“ ist, denn dann lässt sich die Haut sehr einfach abziehen.
 
 3. Während die Paprika im Ofen ist, würfeln wir die Zwiebel und den Knoblauch und hacken die frische Petersilie.
 
@@ -107,3 +107,4 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 7. Jetzt schwenken wir die Nudeln in der fertigen Paprikasauce und schmecken das Gericht noch mit Salz und Pfeffer ab.
 
 8. Vor dem Servieren heben wir die gehackte, frische Petersilie noch unter die Nudeln.
+
