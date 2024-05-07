@@ -48,3 +48,21 @@ Ich mag ganz viele Sachen, also hier meine **Top 3** Rezepte.
 8. Für das Servieren empfehle ich Dir **Créme Fraîche**.
 
 Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
+
+## 2.Käse-Lauch-Suppe
+
+![Teller mit Käse-Lauch-Suppe](https://www.einfachkochen.de/sites/einfachkochen.de/files/styles/768_576/public/2021-05/kaese_lauch_suppe_mit_hackfleisch_1_0.jpg?h=a1e1a043&itok=2E3jtIYq)
+
+### Zutaten:
+
+- 1 Zwiebel
+- 1 Knoblauchzehe
+- 250 g Porree
+- 500 g gemischtes Hackfleisch
+- 2 EL Sonnenblumenöl
+- Salz
+- 800 ml Gemüsebrühe
+- 200 g Schmelzkäse (Rahmstufe)
+- 150 g Crème fraîche (30 % Fett)
+- 1 Prise Cayennepfeffer
+- 1 Prise geriebene Muskatnuss
