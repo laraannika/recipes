@@ -37,3 +37,14 @@ Ich mag ganz viele Sachen, also hier meine **Top 3** Rezepte.
 
 4. Wenn das Hackfleisch schön krümelig angebraten ist, würzt Du es mit 1-2 TL Paprikapulver und gibst 50 g Tomatenmark dazu, beides kurz mit anrösten. 
 
+5. Jetzt gibst Du die Paprikawürfel in die Pfanne und lässt sie kurz mit anrösten.
+
+6. Anschließend kommen noch 800 g passierten Tomaten, die Kidneybohnen und der Mais hinein und Du schmeckst das Chili nach Belieben mit Cayennepfeffer, Salz und einer Prise Zucker ab.
+
+***TIPPS:*** *Falls Du gerne noch Kreuzkümmel und/oder Zimt hinzufügen möchtest, dann empfehle ich Dir in diesem Schritt einen **1/2 TL Kreuzkümmel** und/oder **1/2 - 1 TL Zimtpulver** oder **1 Zimtstange** hineinzugeben. Wenn das Chili dunkler werden soll **2 TL Backkakao** unterrühren.*
+
+7. Das Chili con Carne lässt Du nun mit Deckel für 20-25 Minuten auf mittlerer Stufe köcheln, je nachdem wie knackig Du das Gemüse haben möchtest. 
+
+8. Für das Servieren empfehle ich Dir **Créme Fraîche**.
+
+Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
