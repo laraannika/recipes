@@ -98,3 +98,7 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 
 3. Während die Paprika im Ofen ist, würfeln wir die Zwiebel und den Knoblauch und hacken die frische Petersilie.
 
+4. Auch können wir bereits die Spaghetti, etwas fester als al dente kochen, da sie später in der Pfanne ohnehin noch etwas nachziehen.
+
+5. Sobald die Paprikahäute abgezogen sind, beginnen wir damit die Zwiebeln in der Pfanne anzuschwitzen. Wenn diese etwas Farbe bekommen haben, geben wir noch den Knoblauch sowie die geschälten Paprikascheiben kurz zum Anzubraten hinzu.
+
