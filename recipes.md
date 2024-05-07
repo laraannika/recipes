@@ -3,6 +3,8 @@
 
 Ich mag ganz viele Sachen, also hier meine **Top 3** Rezepte.
 
+
+
 ## 1.Chili con Carne
 
 ![Chili con Carne](https://emmikochteinfach.de/wp-content/uploads/2022/02/Chili-con-Carne-Rezept-schnell-und-einfach-1-768x512.webp)
@@ -49,6 +51,8 @@ Ich mag ganz viele Sachen, also hier meine **Top 3** Rezepte.
 
 Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 
+
+
 ## 2.Käse-Lauch-Suppe
 
 ![Teller mit Käse-Lauch-Suppe](https://www.einfachkochen.de/sites/einfachkochen.de/files/styles/768_576/public/2021-05/kaese_lauch_suppe_mit_hackfleisch_1_0.jpg?h=a1e1a043&itok=2E3jtIYq)
@@ -74,6 +78,8 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 2. Hackfleisch, Zwiebel- und Knoblauchwürfel in einem großen Topf in Sonnenblumenöl **3-4 Minuten** anbraten. Porree und Salz zugeben, **1-2 Minuten** anschwitzen, mit Gemüsebrühe auffüllen und **ca. 10 Minuten** köcheln lassen.
 
 3. Schmelzkäse und Crème fraîche einrühren, aufkochen und mit Salz, Cayennepfeffer und Muskatnuss abschmecken. Nach Wunsch mit ofenfrischem Baguette servieren. ***Guten Appetit!***
+
+
 
 ## 3.Spaghetti Paprikapfanne
 
@@ -107,4 +113,3 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 7. Jetzt schwenken wir die Nudeln in der fertigen Paprikasauce und schmecken das Gericht noch mit Salz und Pfeffer ab.
 
 8. Vor dem Servieren heben wir die gehackte, frische Petersilie noch unter die Nudeln.
-
