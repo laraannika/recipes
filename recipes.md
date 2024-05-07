@@ -102,3 +102,8 @@ Ich wünsche Dir mit meinem Chili con Carne Rezept einen **guten Appetit**!
 
 5. Sobald die Paprikahäute abgezogen sind, beginnen wir damit die Zwiebeln in der Pfanne anzuschwitzen. Wenn diese etwas Farbe bekommen haben, geben wir noch den Knoblauch sowie die geschälten Paprikascheiben kurz zum Anzubraten hinzu.
 
+6. Bevor der Knoblauch verbrennt, löschen wir das Ganz mit der Sojasahne ab, kochen alles ganz kurz auf und pürieren anschließend die Sauce mit dem Stabmixer durch. Gerne dürfen dabei noch ein paar Stückchen erhalten bleiben.
+
+7. Jetzt schwenken wir die Nudeln in der fertigen Paprikasauce und schmecken das Gericht noch mit Salz und Pfeffer ab.
+
+8. Vor dem Servieren heben wir die gehackte, frische Petersilie noch unter die Nudeln.
